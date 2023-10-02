@@ -1,2 +1,2 @@
-Aditya Eka Nugraha
-# ParadoxProject
+Muhammad Rizky Abdillah Rohim
+# Math
